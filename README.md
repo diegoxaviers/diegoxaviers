@@ -18,8 +18,8 @@ I'm a technology professional with a background in **IT Support and Customer Ser
 
 ### 📫 Reach me
 
-* [**LinkedIn**](https://www.linkedin.com/in/diegoxaviers/)
-* [**Email**](diegoxaviers@hotmail.com)
+* **LinkedIn: https://www.linkedin.com/in/diegoxaviers/**
+* **Email: diegoxaviers@hotmail.com**
 
 > Always learning, building, and improving. 🚀
 <!--
